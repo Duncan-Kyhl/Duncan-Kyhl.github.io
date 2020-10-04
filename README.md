@@ -1,1 +1,1 @@
-# duncan-kyhl.github.io
+# Duncan-Kyhl.github.io
